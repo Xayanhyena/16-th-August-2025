@@ -27,4 +27,4 @@ ehvess balhakaah niengeyheh ma hadhaah jehey
 lekah.ma beynun kamah fehey fadaboey bakatts 
 guarantee nuny moonu mathi fadalaai as keraaheh
 man.
-![Image Alt](image_url).
+Zayaanu nethy thage ama dhefai dheytherah boa kohpagen.eyn?.
