@@ -12,6 +12,9 @@ Xayan hyena akee copunah birun hingaa balhakaa
 kamashaa.hama ladaah jehenei copungai as jahafei
 ma hinnanei.ma jahaah jehenei jahaashun.engigei
 bakatta.kurinas mikalas abadhashas ladaashun.ladafei nunfehey neyvaas nilaashun.
+kalhabalhaa makee mikw MA's odi balhah nun vaa.ekalas ledin mikalas ladaashun.copun hadhaah jeheynei as ma benaalekah MA's odi benaa lehekah nun engigei.mithei veydeyh jeheynei.copun ma benaalekah hadhagen nunfehey
+vrh kess veyheh balhaa.seedhaah magey command hingaanei mithei station a as.Ava rule keraashee addu sifain mahthah.engigei.ma alhaa nilaafehey thafirin.OK Comprende?.my territory 
+e gadda veynei Ava.baaki balhaamen ekehey mi beny gora boagahnah ken.hesskeyfei bad koh mi beny.
 
 ![Image Alt](https://github.com/Xayanhyena/16-th-August-2025/blob/282178a9aec85957928bad986eeaf00ba535ed57/IMG_20250816_012909.jpg).
 
