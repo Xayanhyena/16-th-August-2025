@@ -1,7 +1,7 @@
 THAH FAS FAHETHIN FALA FADAIII AU NAGOOBALHAA
 AFIHNAAI KOLHEYHEH FEHEY.HAMA MARAFEI VAHTAASHUMAAAU MI KENY
-
-
+Kalhabalhaa thafirin ehmenge amaa roshi au balhaa mi keny
+jehithaan fadafei ehlaashumaau.
 
 
 
